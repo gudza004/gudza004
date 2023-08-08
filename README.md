@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gudza004
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...yer
-- 💞️ I’m looking to collaborate on ...asd
+- 💞️ I’m looking to collaboratцукаівe on ...asd
 - 📫 How to reach me ...asfvx
 sadsadasd
 <!---sad
