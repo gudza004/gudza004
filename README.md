@@ -3,10 +3,10 @@
 - 🌱 I’m currently learning ...yer
 - 💞️ I’m looking to collaboratцукаівe on ...asd
 - 📫 How to reach me ...asfvx
-sadsadasdsfdxcv
+sadsadasdsfdxcvdas
 <!---sadcxc
 gudza004/gudza004 is n,a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a ladsook at you3113r changes.
 --->cxvdsfcvfgdsg
-vbv
+vbvsd
 fasasd
