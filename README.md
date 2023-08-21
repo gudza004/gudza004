@@ -2,7 +2,7 @@ d- 👋 Hi, I’m @gudza004
 - 👀 I’m interested in .c..
 - 🌱 I’m currently learning ...yerasc
 - 💞️ I’m looking to collaboratцукаівe on ...asd
-- 📫 How to reach me ...asfvxcxzczxczxc
+- 📫 How to reach me ...asfvxcxzczxczxcsadxzc
 sadsadasdsffмсч
 сисмиfvcxcvdxcvdasясчсчм
 <!---sadcxc
