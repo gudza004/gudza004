@@ -3,7 +3,7 @@ d- 👋 Hi, I’m @gudza004vcv
 - 🌱 I’m currently learning ...yerasc
 - 💞️ I’m looking to collaboratцукаівe on ...asd
 - 📫 How to reach me ...asfvxcxzczxczxcsadxzc
-sadsadasdsffмсчcv
+sadsadasdsffмсчcvімчсмчсммваіваваіваі
 сисмиfvcxcvdxcvdasясчсчмlk/
 <!---sadcxc
 gudza004/gudza004 is n,a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
