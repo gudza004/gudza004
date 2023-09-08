@@ -1,4 +1,4 @@
-d- 👋 Hi, I’m @gudza004vcvxzczxcxzc
+d- 👋 Hi, I’m @gudza004vcvxzczxcxzczxczxczxccxzc
 - 👀 I’m interested in .c..
 - 🌱 I’m currently learning ...yerasc
 - 💞️ I’m looking to collaboratцукаівe on ...asd
