@@ -1,6 +1,6 @@
 d- 👋 Hi, I’m @gudza004vcvxzczxcxzczxczxівфіввфіczxccxzc
-- 👀 I’m interested in .c..sadasdasd
-- 🌱 I’m currently learning ...yerasc
+- 👀 I’m interested in .c..sadasdasdasdzcxcxzzxc
+- 🌱 I’m currently learning ...yerasczxczxczxc
 - 💞️ I’m looking to collaboratцукаівe on ...asd
 - 📫 How to reach me ...assdffvxcxzczxczxcsadxzc
 sadsadasdsffмсчcvімчсмчсммваіваваіваіsdasdasdfasdf
