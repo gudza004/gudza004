@@ -4,7 +4,7 @@ d- 👋 Hi, I’m @gudza004vcvxzczxcxzczxczxівфіввфіczxccxzc
 - 💞️ I’m looking to collaboratцукаівe on ...asdlh
 - 📫 How to reach me ...assdffvxcxzczxczxcsadxzc
 sadsadasdsffмсчcvімчсмчсммваіваваіваіsdasdasdfasdf
-сисмиfvcxcvdxcvdasясчсчмlk/gfsd
+сисмиfvcxcvdxcvdasясчсчмlk/gfsdasd
 <!---sadcxc
 gudza004/gudza004 is n,a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a ladsozxcxok at you3113r changes.asdsad
