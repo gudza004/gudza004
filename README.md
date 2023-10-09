@@ -2,7 +2,7 @@ d- 👋 Hi, I’m @gudza004vcvxzczxcxzczxczxівфіввфіczxccxzc
 - 👀 I’m interested in .c..sadasdasdasdzcxcxzzxc
 - 🌱 I’m currently learning ...yerasczxczxczxc
 - 💞️ I’m looking to collaboratцукаівe on ...asdlh
-- 📫 How to reach me ...assdffvxcxzczxczxcsadxzc
+- 📫 How to reach me ...assdffvxcxzczxczxcsadxzc nmb
 sadsadasdsffмсчcvімчсмчсммваіваваіваіsdasdasdfasdf
 сисмиfvcxcvdxcvdasясчсчмlk/gfsdasd
 <!---sadcxc
