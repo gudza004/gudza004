@@ -1,5 +1,5 @@
 d- 👋 Hi, I’m @gudza004vcvxzczxcxzczxczxівфіввфіczxccxzc
-- 👀 I’m interested in .c..sadasdasdasdzcxcxzzxc
+- 👀 I’m interested in .c..gkhjjk
 - 🌱 I’m currently learning ...yerascфівіфвфzxczxczxc
 - 💞️ I’m looking to collaboratцукаівe on ...asdlh
 - 📫 How to reach me ...assdffvxcxzczxczxcsadxzc nmb
