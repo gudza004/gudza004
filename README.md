@@ -1,4 +1,4 @@
-d- 👋 Hi, I’m @gudza004vcvxzczxcxzczxczxфівіфвіфвівdsadsadasdadasфіввфіczxccxzcaSASc cxvggfddfdgdfgvcxsxcczcx
+d- 👋 Hi, I’m @gudza004vcvxzczxcxzczxczxфівіфвіфвівdsadsadasdadasфіввфіczxccxzcaSASc cxvggfddfdgdfgvcxsxcasdsdasdczcx
 - 👀 I’m interested in fdsfdf.c..gkhjjk
 - 🌱 I’m currently learning ...yeraфівівфвe on ...asdlh
 - 📫 How to reach me ...assdffvxcxzczxczxfadsfasdcsadxzc nmb
