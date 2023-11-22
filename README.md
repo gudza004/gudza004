@@ -2,7 +2,7 @@ d- 👋 Hi, I’m sasd@gudza004vcvxzczxcxzczxczxфівіфвіфвівdsadsadasd
 - 👀 I’m interested in fdsfdf.c..gasaskhjjksdfdsf
 - 🌱 I’m currently learning ...yeraфівівфвe on ...asdlh
 - 📫 How to reach me ...assdffvxcxzczxczxfadsfasdcsadxzc nmb
-sadsadasdsffмсчcvімчсмчсммваіваваіваіsdasdasdfasdf
+sadsadasdsffмсчcvімчсмчсммваівавsdsdsdаіваіsdasdasdfasdf
 сисмиfvcxcvdxcvdasясчсчмlk/gfsdasdsdsadsaadasdasdacxzczxc
 <!---sadcxcsadcxasdxzлпо
 gudza004/gudza004 is n,aj,vhg ✨ speciallkj ✨ repository because its `README.md` (this file) appears on your GitHub profile.
